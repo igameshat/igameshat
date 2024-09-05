@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @igameshat
 - 👀 I’m interested in: cheese
-- 🌱 I’m currently learning.
 - 📫 How to reach me: please dont
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like cheese
